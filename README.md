@@ -18,5 +18,4 @@ _Мои контакты:_
 >тел.: **8999 999 99 99**  
 >email: **email@pochty.net**  
 
-
-![фото](https://kartinkin.net/uploads/posts/2022-02/thumbs/1645709411_4-kartinkin-net-p-informatsionnie-tekhnologii-kartinki-6.jpg)
+![](https://kartinkin.net/uploads/posts/2022-02/1645709405_1-kartinkin-net-p-informatsionnie-tekhnologii-kartinki-2.jpg)
