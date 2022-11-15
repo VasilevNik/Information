@@ -18,4 +18,4 @@ _Мои контакты:_
 >тел.: **8999 999 99 99**  
 >email: **email@pochty.net**  
 
-![](https://kartinkin.net/uploads/posts/2022-02/1645709405_1-kartinkin-net-p-informatsionnie-tekhnologii-kartinki-2.jpg)
+![https://netology.ru](https://kartinkin.net/uploads/posts/2022-02/1645709405_1-kartinkin-net-p-informatsionnie-tekhnologii-kartinki-2.jpg)
